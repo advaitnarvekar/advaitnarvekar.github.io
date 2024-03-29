@@ -1,2 +1,6 @@
-# advaitnarvekar.github.io
-Portfolio
+#Education
+
+#Skills
+
+#Work Experience
+
